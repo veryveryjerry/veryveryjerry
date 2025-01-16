@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @veryveryjerry
+- 👀 I’m interested in VR/GAME DEV/ML and Fullstack
+- 🌱 I’m currently learning Fullstack
+- 💞️ I’m looking to collaborate on VR and ML projects
+- 📫 Reach me @jeremyjoe@karunya.edu.in
+- ⚡ Fun fact: I bake a mean brownie
